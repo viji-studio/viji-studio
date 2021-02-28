@@ -30,7 +30,8 @@ Nationally in Toronto - Montreal - Vancouver
 </details>
 
 ### Why We Do?
-Embrace the principal of art <br>
+Embrace the principal of art in photography <br>
+Provide premium service without premium price
 
 ### Learn More
 #### Contact
